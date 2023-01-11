@@ -1,3 +1,4 @@
+Oie, me chamo Gabrielle Azevedo
 
 -  Estudando Python ⚡
 -  Cursando Engenharia Agronômica na UFRRJ 🌱
