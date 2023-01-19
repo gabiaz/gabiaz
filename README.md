@@ -4,4 +4,5 @@ Oie, me chamo Gabrielle Azevedo
 -  Cursando Engenharia Agronômica na UFRRJ 🌱
 -  Entre em contato por email 😄 :
     gabiazma@gmail.com
+
 https://www.linkedin.com/in/gabrielle-azevedo-a27742201/
