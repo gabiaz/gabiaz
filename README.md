@@ -1,7 +1,7 @@
 Oie, me chamo Gabrielle Azevedo
 
 -  Estudando Python ⚡
--  Cursando Engenharia Agronômica na UFRRJ 🌱
+-  Cursando "Engenharia de Produção"
 -  Entre em contato por email 😄 :
     gabiazma@gmail.com
 
